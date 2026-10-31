@@ -1,0 +1,2 @@
+# registration
+wed club activity
